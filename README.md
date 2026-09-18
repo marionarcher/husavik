@@ -1,4 +1,4 @@
-I like SQL, if you not so go to shit.
+I like SQL and my name Husavik, if you not so go to shit.
 Java is my first language, python is the second one.
 My linkedin profile is a total lie, but it works for me.
 
